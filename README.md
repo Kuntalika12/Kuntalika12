@@ -1,6 +1,6 @@
 [![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
-<h1 align="center">Hi 👋, I'm Kuntalika Das</h1>
-<h3 align="center">Dedicated and Inspired , Pursuing Excellence with Heart</h3>
+<h1 align="center">Hi ✿, I'm Kuntalika Das</h1>
+<h3 align="center">Dedicated and Inspired , Pursuing Excellence with Heart✨</h3>
 (img align="right" alt="Coding" width="400" src="https://startcoding.co.in/wp-content/uploads/2021/12/coding-for-kids.gif")
 
 
